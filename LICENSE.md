@@ -1,4 +1,4 @@
-# 
+# Automatique Bumblebee préréglages. Avec prêt pour l'entreprise et graphes de connaissances — optimisé pour des performances et une efficacité maximales.
 
 
 
